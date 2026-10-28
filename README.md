@@ -1,0 +1,1 @@
+# rzmin-shop.github.io
